@@ -1,7 +1,3 @@
-<!--
-**Wilber88/Wilber88** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-
 - 😊 Mi nombre es Wilber Lancea Mamani  
 - 🙃 Tengo 22 años     
 - ⚽ Me gusta jugar el porte de Futbol
