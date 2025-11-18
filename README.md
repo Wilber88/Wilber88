@@ -4,4 +4,3 @@
 - 😃 Trabajo con mi padre en su negocio 
 - 🖥 Actualmente soy estudiante de la carrera de ingenieria de sistemas de la Universidad Mayor de San Simon
 - 🤓 En mis tiempos me gusta Leer y escuchar musica
-- Y en mis otros tiempo libre me gusta hablar mas con mi compañera giovanna ❤
